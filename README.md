@@ -1,2 +1,0 @@
-# najah
- Najah Technology Website
